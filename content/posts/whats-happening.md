@@ -41,27 +41,29 @@ As much as I wanted to ignore this guy at that moment, I quite couldn't. I knew 
 
 ![tweet-6](/images/p10.png)
 
-Sure it didn't stop with that, he went on and on with his stats and screenshots from over the places. He was convinced to the bottom of his guts that this was a fascist move from people at power and killing healthy innocents hiding behind the big back of the **pandemic**. He and the lady from the first tweet stated that suicides were increasing and people are getting anxious with each passing moment. These are facts I don't deny.
+Sure it didn't stop with that, he went on and on with his stats and screenshots from all over the places. He was convinced to the bottom of his guts that this was a fascist move from people at power who were killing healthy innocents hiding behind the big back of the **pandemic**. He, and the lady from the first tweet stated that suicides were increasing and people are getting anxious with each passing moment. Now, these are facts I cannot deny.
 
 I knew what they were telling was true. Although they made me feel like punching right on their faces, but they did make sense. But what's really at stake here? If leaving people out in the open was the ultimate solution to fighting the pandemic, people far more equipped than him and I would authorize and perhaps force that decision over anything. But they didn't. They had to make a decision. And they decided to back down against the uncertain circumstances we were in.
 
-He claims that I am so engraved inside the horror that the **idiotbox** - the media, has planted in me, that there is no saving people like myself. I began to think if he was correct.
+He, however, claims that I am so engraved inside the horror that the **idiotbox** - the media, has planted in me, that there is no saving people like myself. I began to think if he was correct.
 
 ![tweet-7](/images/p5.png)
 
-Back to Sweden and their brave act. They did take the unorthodox measure and perhaps showed results that people could look at and idiolize. But had it not been just a single city in Sweden and the whole world. Would the fate of Stockholm still be shared by the world? I believe not, but again is it the medi; are they making us feel like its worse than it really is?
+Back to Sweden and their brave act. They did take the unorthodox measure and perhaps showed results that people could look at and idiolize. But had it not been just a single city in Sweden and the whole world. Would the fate of Stockholm still be shared by the world? I believe not, but again is it the media; are they making us feel like its worse than it really is?
 
-This time, I think I have an answer. It's a glorious NO. For I know, there exists health services like that of our country, elsewhere in the world too. Being so close to two grand nations, I am hell a lot scared, and our government and their authority just adds a cherry on top. If people were allowed to move freely, we would be incinerated within weeks. I would have lived perhaps, but I am not alone in this country.
+This time, I think I have an answer. It's a glorious NO. For I know, there exists health services like that of our country, elsewhere in the world too. And for us, who are so close to two grand nations, I am hell a lot scared than he is. And our government and their authority just adds a cherry on top. If people were allowed to move freely, we would be incinerated within weeks. I would have lived perhaps, but I am not alone in this country.
 
 But I doubt he has all this in mind. 
 
 ![tweet-8](/images/p6.png)
 
-It kept going absurd, although I wanted to get his point. Since he had shown me proofs of how hospitals in the US were empty. (You can see too, just search #FilmYourHospital in twitter.) This proved my theory, he was just talking about the minorities that were the part of the elite society. Where hospitals were rather empty and stats were against the lockdown, it made sense - the frustration and anger towards the authority forcing them to stay inside and the people who supported the **totalitarianism**(in his words).
+It kept going absurd, although I wanted to get his point, I couldn't. By this time, he had shown me proofs of how hospitals in the US were empty. (You can see too, just search #FilmYourHospital in twitter.) 
 
-I faintly understood him. I was set off kind of hoping to change how he thought, worked the other way around.
+This on the contrary, proved my theory, he was just talking about the minorities that were the part of the elite society. Where hospitals were rather empty and stats were against the lockdown, it made sense - the frustration and anger towards the authority forcing them to stay inside. But his anger towards people who supported the **totalitarianism**(in his words) wasn't correct. But who would tell him.
 
-I didn't tell him that. But this - 
+Moving on, I must say I faintly understood him. I was set off kind of hoping to change how he thought had worked the other way around.
+
+I didn't tell him that.
 
 ![tweet-9](/images/p7.png)
 
