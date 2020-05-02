@@ -75,4 +75,4 @@ For us? Well, I am glad to be home. Yes everyone of us is bored, sick and tired 
 
 All this made me realise was how divided we were. Even when the cause is the same, the consequences and the situations we are facing barely unites us all. I had been thinking we were in this together, but now that I know we aren't. It has put a bigger question mark in my head and left me confused all the while. I am thinking **What's** really **happening?**
 
-Perhaps, this is how Jack Dorsy intended twitter to be - people having heated conversations over people's freedom and life. All that he enjoys coming into life while he drinks Margarita and lays back in his porch.
+Perhaps, this is how Jack Dorsy intended twitter to be - people having heated conversations over people's freedom and life. All that he enjoys coming into life now, while he drinks Margarita and lays back in his porch.
