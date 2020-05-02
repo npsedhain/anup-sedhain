@@ -11,7 +11,7 @@ series = []
 
 A couple weeks back I joined twitter to compensate my free time. And I know how dangerous the *free* time for yourself can be. Thoughts, feelings, emotions, they come souring up and hit you where you don't want. So, I decided to do a different unproductive work as opposed to doing nothing.
 
-Surprisingly, my experiences there has been better than expected. Yes, of course I do the most important thing everyone else does in twitter - being someone you aren't, but there are others too. And the other things are turning out to be rather interesting. Yes, of course acting is fun, but you know the real deal. Being in twitter makes me feel like one of those **first responders** of most news and a couple memes (reddit users will disagree here).
+Surprisingly, my experiences there have been better than expected. Yes, of course I do the most important thing everyone else does in twitter - being someone you aren't, but there are others too. And the other things are turning out to be rather interesting. Yes, of course acting is fun, but you know the real deal. Being in twitter makes me feel like one of those **first responders** of most news and a couple memes (reddit users will disagree here).
 
 And today I am writing about my most recent and surreal experience of the same, I was a first responder to a person's rant who opposed the ongoing lockdown. You will see how he was onto me - all guns blazing. But I have to say I got into this, on my own and I am equally guilty.
 
