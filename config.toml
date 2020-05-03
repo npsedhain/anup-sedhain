@@ -76,3 +76,8 @@ theme        = "/hello-friend-ng"
     identifier = "contact"
     name       = "Contact"
     url        = "/contact"
+
+  [[menu.main]]
+    identifier = "sketch"
+    name       = "Sketch"
+    url        = "/sketches"
