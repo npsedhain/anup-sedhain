@@ -32,6 +32,7 @@ The first memory of someone is **really** pure. It goes untapped and unadulterat
 #### sketch - 1 
 
 Nobody loves **chaos**. But many people think they(or their lives) are in a state of this complete disorder. Is it that they don’t try or **is** it something completely un**avoidable** to have to be living in this mayhem? It’s one of the things we need to invest some time thinking.
+
 To me there isn’t a state of chaos, at least not in our lives. It’s because of this overwhelming options we see before us, and fall into the illusion of indecisiveness. But we really haven’t been looking, the thing we need isn’t the crowd, it’s just a piece of it.
 **Concentrate** **on** just the things you know you **need** and life isn’t that chaotic at all.
 
