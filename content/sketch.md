@@ -3,6 +3,21 @@ this is not the part that makes a lot of sense, it's just my random thoughts
 
 ----
 
+## my day off
+
+#### sketch - 4
+
+“It’s all worth it - hustling - will certainly pay off one day.” 
+
+While this is true to its core, it has started occurring to me that balance in life is just as important. Can you **remember** the last time you spent time with your family, and asked how your mother has been? If it has been a while, you should consider taking these acts as just as indispensible as work. Yes, working day-and-night will reap fruits but it shouldn’t be at an expense of life.
+
+While I was reading somewhere that the sky was beautiful today, it struck me - I could just read, and that was it. I thought I was sacrificing the time for something far greater that these smaller things would never matter. I was wrong. What about those glimpses of the beautiful sky, **the silver linings** in the cloud, and the smile on your mother's face **?** In the end, these are what that matters the most. So, there should not be anything so demanding of you that you have to let these go. You have got to and you should find time for these.
+
+Lately, I have been doing it wrong. It isn't the best of ways to make up for it but soon enough I will dedicate a day to just stare up at the sky and play ludo with my mom. That day, I will call it my day off.
+
+2020-05-07
+
+----
 
 ## story never ends
 
@@ -29,7 +44,7 @@ The first memory of someone is **really** pure. It goes untapped and unadulterat
 
 ## is it chaotic?
 
-#### sketch - 1 
+#### sketch - 1
 
 Nobody loves **chaos**. But many people think they(or their lives) are in a state of this complete disorder. Is it that they don’t try or **is** it something completely un**avoidable** to have to be living in this mayhem? It’s one of the things we need to invest some time thinking.
 
