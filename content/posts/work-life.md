@@ -11,7 +11,7 @@ series = []
 
 #### Disclaimer
 
-This will probably undergo countless changes before it gets published somewhere (if it ever does). But this is my space and it is just the way I intended to be (minus some changes in favor of my work place).
+This will probably undergo countless changes before it gets published somewhere (if it ever does). But this is my space and it is just the way I intended it to be (minus some changes in favor of my work place).
 
 ----
 
@@ -31,7 +31,7 @@ switch (my career-path) {
 
 Well you are smart enough to crack this enigma of a code. I chose case 2 and amongst many options before me, I yearned for that best shot and nailed that down.
 
-I must tell you this, the process to get in here is far from a fairy tale. You have to and when you write those best lines of pseudo code you have ever written, you get to face these giants - who fire questions from all over and you have to bravely put take some to your guts and duck a few that can bleed your nose pretty bad (I am sure it’s exaggerated, but you know, what’s not in writing?). When I had made it through, I was feeling ecstatic, not alone but with Krishu and 19 others.
+I must tell you this, the process to get in here is far from a fairy tale. You have to and when you write those best lines of pseudo code you have ever written, you have to face these giants - who fire questions from all over and you have to bravely take some to your guts and duck a few that can bleed your nose pretty bad (I am sure it’s exaggerated, but you know, what’s not in writing?). When I had made it through, I was feeling ecstatic, not alone but with Krishu and 19 others.
 
 So we took on this tedious (6 weeks for many, 12 for some extra ordinaries) journey and shine through it. More than half were the faces that I was already familiar with, so it was less scary in that way, but a whole lot more competitive than anyone ever admitted. We all did our best.
 
