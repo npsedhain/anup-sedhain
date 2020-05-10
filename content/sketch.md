@@ -3,11 +3,21 @@ this is not the part that makes a lot of sense, it's just my random thoughts
 
 ----
 
+## positive illusion
+
+#### sketch - 5
+
+Before you take an IQ test, guess the score you think you will get. Now, ask one of your acquaintances (doesn't have to be close) to guess it too. Researches have found that, you are most likely to be less accurate than other person who had also guessed it. It's because you know yourself too well and you have a higher perception of yourself than you really are. There is a term for something like this, and it's called **positive illusion**. We are all the victim of it. Perhaps, me more than you.
+
+2020-05-10
+
+----
+
 ## my day off
 
 #### sketch - 4
 
-“It’s all worth it - hustling - will certainly pay off one day.” 
+“It’s all worth it - hustling - will certainly pay off one day.”
 
 While this is true to its core, it has started occurring to me that balance in life is just as important. Can you **remember** the last time you spent time with your family, and asked how your mother has been? If it has been a while, you should consider taking these acts as just as indispensible as work. Yes, working day-and-night will reap fruits but it shouldn’t be at an expense of life.
 
