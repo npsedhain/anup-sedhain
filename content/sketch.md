@@ -3,6 +3,16 @@ this is not the part that makes a lot of sense, it's just my random thoughts
 
 ----
 
+## selfish relation
+
+#### sketch - 6
+
+Be open about what you want. Be clear from the moment go. Tell the person what you need and pay attention to their likes/dislikes. Don't just listen; understand and help them understand your needs and emotions. Feed the person's ego and let her/him feed yours. Help the person get through her/his dreadful times with a promise that s/he will do the same for you. The love you so dearly wanted to work, will work. It will be driven by your selfishness and it will be just as beautiful. Because love doesn't have to be selfless, it is about serving yourself the way that works for both. If you take, you must give and that should work. 
+
+2020-05-12
+
+----
+
 ## positive illusion
 
 #### sketch - 5
