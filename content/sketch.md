@@ -3,6 +3,30 @@ this is not the part that makes a lot of sense, it's just my random thoughts
 
 ----
 
+## i don't know
+
+#### sketch - 8
+
+An inevitable truth about us social beings is that we all want to sound smart. From our early childhood to the end of life, we are seeking validation, trying to feed our egos and hoping to be correct, always. A nod in the face, a hint of approval in the eyes, are all that we wish we would get from people. Amidst all that, where we miss out is being really smart. 
+
+We are focused in the result. We hear people talking and spitting great values and the next thing we do is copy. We speak up about things we feel is correct. While that's not absolutely wrong but we fail to see the underlying truth. What made the person be on the stands and speak what he speaks? Who gave him the right and authority to be there and make us listen? Well, it's not the action in itself but the whole process behind it that's important. When we are really trying to sound smart we fail to put real effort in being one.
+
+But you are here reading this and if you really want to be smart. Then remember that the real difference between sounding smart and being smart is - I don't know. Be sure you know what **you don't know**.
+
+2020-05-29
+
+----
+
+## a note to you and i
+
+#### sketch - 7
+
+I hate to admit this, but I am slowly losing respect for you. You have been great, perhaps helped me a lot. But I barely feel it. It makes me happy to see you happy, but you are making it difficult. I would try to help you, but you don't want it. Heck, you don't even realise that you need help. To you, the world is wrong and you are correct. I obliged, I hid your darkest secret. I tried to empathise, to put myself in your shoes but you are making it harder. People around you are trying their best, only to realise you are failing them. Open your eyes and see what you are doing and what you are missing. We have given ample hints, we have shouted, but you don't comply. You open your defense suit and that is where everything goes wrong. Learn to digest criticisms. Its really getting out of hands, don't make us hate you, don't distance yourself too much. There are better ways for you to communicate. Its never too late to change, if you just realise you need to, we are here to help. Just embrace yourself with your flaws. I beg you.
+
+2020-05-15
+
+----
+
 ## selfish relation
 
 #### sketch - 6
