@@ -11,7 +11,7 @@ An inevitable truth about us social beings is that we all want to sound smart. F
 
 We are focused in the result. We hear people talking and spitting great values and the next thing we do is copy. We speak up about things we feel is correct. While that's not absolutely wrong but we fail to see the underlying truth. What made the person be on the stands and speak what he speaks? Who gave him the right and authority to be there and make us listen? Well, it's not the action in itself but the whole process behind it that's important. When we are really trying to sound smart we fail to put real effort in being one.
 
-But you are here reading this and if you really want to be smart. Then remember that the real difference between sounding smart and being smart is - I don't know. Be sure you know what **you don't know**.
+But you are here reading this and if you really want to be smart. Then remember that the real difference between sounding smart and being smart is - I don't know. So, make sure you know what **you don't know**.
 
 2020-05-29
 
