@@ -1,5 +1,7 @@
-# don't SPAM me
+# maybe, say hello 
 
-I will soon add a work **email** here.
+If you like what you read here, reach out to me. It will give me one more reason to find more time and content for this blog.
 
-For now, I don't think it will be hard for you to reach out to me. How did you end up here? Perhaps backtrack me from there. I will surely reply.
+After all, it's all for you. I am hoping you had a good time and will remember to head back here sometime next week. Till then, I will try and find something new for you to read.
+
+**npsedhain@gmail.com**
