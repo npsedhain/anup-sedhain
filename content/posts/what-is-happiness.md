@@ -11,7 +11,7 @@ series = []
 
 Hello there,
 
-It is 9:43 pm now and I started writing this letter. The date is 6th of June, 2020. The year we all can’t wait to get over with. We are already half way through it and every day is a big bad surprise. Honestly, it has been really tough six months. The whole world seems as though they have stopped being happy, which is really very sad and considering you are a part of it, I have come up with something that could be of help. Well, not me but someone I read/heard from. I thought I would echo few strategies towards human well being or simply put, being happy. I hope you might gain some insights. Just skim through this, because there isn’t really any TL;DR.
+It is 9:43 pm now and I have started writing this letter. The date is 6th of June, 2020. The year we all can’t wait to get over with. We are already half way through it and every day is a big bad surprise. Honestly, it has been really tough six months. The whole world seems as though they have stopped being happy, which is really very sad and considering you are a part of it, I have come up with something that could be of help. Well, not me but someone I read/heard from. I thought I would echo few strategies towards human well being or simply put, being happy. I hope you might gain some insights. Just skim through this, because there isn’t really any TL;DR.
 
 And just a disclaimer, if you have read any of my previous works, this one is going to be a little different. This contains a bit of a science and some research findings that I happened to find online. So, whatever you will read is not entirely my thoughts. I am roughly summarizing what I learnt from a podcast I heard the other day. I will leave the source for you, at the end. If you find any of these interesting, feel free to visit those. It will be no less than a goldmine.
 
@@ -19,14 +19,15 @@ I am almost 23 now. A couple of weeks from now and I will be a year old, althoug
 
 A professor at University of California who happens to be a happiness expert defines it simply as a mixture of two components.
 
-Having positive emotions (happy in life);
-Having a sense of awareness about where one’s life is leading and being satisfied with it (happy with life).
+- Having positive emotions (happy in life);
+
+- Having a sense of awareness about where one’s life is leading and being satisfied with it (happy with life).
 
 Now that we have a rough idea about what really happiness is. The greater question now would be, how can I really be happy? Since I have made that my life goal, shouldn’t I really be focusing and asking that question. Yes and if you want to be happy, perhaps you should too.
 
 But the tragedy of human lives today is that most people don’t know what they want. Most people think that the answer to all the questions they have in mind can and will be answered with these few things- money, relationships, career, success and fame.
 
-(Woah, calm down before you judge this letter. If you think I am about to lecture about how these things aren’t true and how you should give up a job that pays you. Well, seems like you can be wrong sometimes. Because I know these all bring some happiness, but it is a little trickier than that. I just found out. And I am trying to make you aware too. So just hang on, okay? <a href="https://signalvnoise.com/posts/3124-give-it-five-minutes" target="_blank">Give it 5 minutes.</a>)
+(Woah, calm down before you judge this letter. If you think I am about to lecture about how these things aren’t true and how you should give up a job that pays you. Well, seems like you can be wrong sometimes. Because I know these all bring some happiness, but it is a little trickier than that. I just found out. And I am trying to make you aware too. So just hang on, okay? [Give it 5 minutes](https://signalvnoise.com/posts/3124-give-it-five-minutes).)
 
 The things that I mentioned, those few things, they may bring happiness of some sort. I am in no way denying that, but what I have found out is that the opposite is definitely true and much more effective. Confused about the opposite? Well, let me make myself clear.
 
@@ -46,8 +47,9 @@ Before we jump right into the results; just a faint introduction to who had volu
 
 Let’s start with the basics.
 
-Drinking/smoking is bad for your psychological/ physical well being (big surprise).
-Wealth is not equal to happiness (woah not again).
+- Drinking/smoking is bad for your psychological/ physical well being (big surprise).
+
+- Wealth is not equal to happiness (woah not again).
 
 When a same statement turns up a numerous times, you probably have to give it a thought. Perhaps what they are saying is true. Well, you be the judge.
 
@@ -63,16 +65,20 @@ The to-do list is about the things that gives you a surge of positive emotions. 
 
 Laurie even had a set of mantras or even home-works for people. It was something like this-
 
-Sleep 8 hours.
-Meditate for 10 minutes.
-Do something kind everyday.
-Write five things you are grateful for every now and then.
+- Sleep 8 hours.
+
+- Meditate for 10 minutes.
+
+- Do something kind everyday.
+
+- Write five things you are grateful for every now and then.
 
 And maybe a lot more. And people who actually followed this believe that it just changed their lives. All this really enthuse me and I can’t wait to start preparing my to-do list for life. This right here, what I am doing surely falls under that list and I really see that working. So just find your list and make it your greatest project of life.
 
 For me, it is the biggest project of my life. A project that doesn’t really have a release date. A project that is more about the journey and less about the result. A project for which I am willing to give in my days and nights working for. A project that has just one end user, one participant, one developer and one quality assurer. But, for me, this will be the most dear and most important project of all time. This is something I really cannot take a chance on. There aren’t people who have the authority to fire me which is the reason why I have to be more disciplined. I know it is going to be hard, but I am undertaking this one. Because to Laurie, someone who even tries to be happy and fights against their status quo is a person who will inspire. And who knows, if fifty years from now, someone just like Laurie will talk about my longest project in one of her episodes. Maybe she will talk about how happy the creator of it was, and then some happiness seeking freak will be pumped to write his own letter just like the one you are reading.
 
-Here's a link to my <a href="https://www.happinesslab.fm/" target="_blank">source</a> of all of this crap.
-
 Wishing you all the happiness,
+
 Anup
+
+[Here's a link to my source for all of this crap](https://www.happinesslab.fm/).
