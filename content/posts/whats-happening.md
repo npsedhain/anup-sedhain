@@ -15,17 +15,17 @@ Surprisingly, my experiences there have been better than expected. Yes, of cours
 
 And today I am writing about my most recent and surreal experience of the same, I was a first responder to a person's rant who opposed the ongoing lockdown. You will see how he was onto me - all guns blazing. But I have to say I got into this, on my own and I am equally guilty.
 
-This started when a woman was tweeting with a very **convincing** stats from 2017-2019 where there was no lockdown, and more people were dying. 
+This started when a woman was tweeting with a very **convincing** stats from 2017-2019 where there was no lockdown, and more people were dying.
 
 ![tweet-1](/images/p1.png)
 
 I know, right?? I thought the same and replied.
 
-![tweet-1](/images/p2.png)
+![tweet-2](/images/p2.png)
 
 Who knew that I would be awakening demons inside of someone.
 
-It started. Started with an analogy of two different countries who have been hit differently, but same, according to him. Sweden has more than 7000 deaths whereas Norway has only 200. How are the outcomes same? 
+It started. Started with an analogy of two different countries who have been hit differently, but same, according to him. Sweden has more than 7000 deaths whereas Norway has only 200. How are the outcomes same?
 
 ![tweet-3](/images/p3.png)
 
@@ -53,11 +53,11 @@ Back to Sweden and their brave act. They did take the unorthodox measure and per
 
 This time, I think I have an answer. It's a glorious NO. For I know, there exists health services like that of our country, elsewhere in the world too. And for us, who are so close to two grand nations, I am hell a lot scared than he is. And our government and their authority just adds a cherry on top. If people were allowed to move freely, we would be incinerated within weeks. I would have lived perhaps, but I am not alone in this country.
 
-But I doubt he has all this in mind. 
+But I doubt he has all this in mind.
 
 ![tweet-8](/images/p6.png)
 
-It kept going absurd, although I wanted to get his point, I couldn't. By this time, he had shown me proofs of how hospitals in the US were empty. (You can see too, just search #FilmYourHospital in twitter.) 
+It kept going absurd, although I wanted to get his point, I couldn't. By this time, he had shown me proofs of how hospitals in the US were empty. (You can see too, just search #FilmYourHospital in twitter.)
 
 This on the contrary, proved my theory, he was just talking about the minorities that were the part of the elite society. Where hospitals were rather empty and stats were against the lockdown, it made sense - the frustration and anger towards the authority forcing them to stay inside. But his anger towards people who supported the **totalitarianism**(in his words) wasn't correct. But who would tell him.
 
@@ -71,7 +71,7 @@ Sounds like an end doesn't it? Only it wasn't. There are a lot more of these, ba
 
 Are we really in this together? Trever Noah and Ellen Degeneres asking the whole world to stay home, does that work for the whole world? Should we even be fighting this together? Yes, the problem is the same. COVID-19. But solution shouldn't necessarily be one or if I may, it should not be one. South Korea tested every living being out there and got rid of it, China built a freaking hospital over a weekend and incresed services while asking people to stay inside. Swedes are happy and out in the open basking the Sun and enjoying oranges. US? I am telling you, just as the people there, the problem is as diverse which needs more specific solution than the default **lockdown**. While hospitals in California are mostly empty and people feel more in threat while in home, I feel like something has to be done differently.
 
-For us? Well, I am glad to be home. Yes everyone of us is bored, sick and tired of seeing the same paint in your wall but trust me there isn't a better way we can handle this. 
+For us? Well, I am glad to be home. Yes everyone of us is bored, sick and tired of seeing the same paint in your wall but trust me there isn't a better way we can handle this.
 
 All this made me realise was how divided we were. Even when the cause is the same, the consequences and the situations we are facing barely unites us all. I had been thinking we were in this together, but now that I know we aren't. It has put a bigger question mark in my head and left me confused all the while. I am thinking **What's** really **happening?**
 
