@@ -20,8 +20,6 @@ As usual, this is something I heard in this [podcast](https://fs.blog/knowledge-
 
 ---
 
----
-
 ## i don't know
 
 #### sketch - 8
