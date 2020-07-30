@@ -1,13 +1,32 @@
 # sketches
-this is not the part that makes a lot of sense, it's just my random thoughts
 
-----
+this is not the part that makes a lot of sense, it's just my random thoughts, feel free to judge me
+
+---
+
+## hell yeah or no
+
+#### sketch - 9
+
+You commit yourself to situations. Situations that you believe will help you in the long run. Situations that are supposed to be fruitful and teach you a lesson or two or make you understand a couple things. So you say YES to things. You say yes, when a friend asks you if you will help, you will say yes to your colleague summoning you, you will say yes to your partner for a road trip next weekend. But the problem is you can only do so many things all at the same time.
+
+Soon enough you will find yourself going down this rabbit hole and go along being buried under dozens of commitments that you can barely fulfill. The problem here is pretty obvious - you say YES a lot. And there is an easy solution to this.
+
+Whenever you hear something, a proposal that takes your time - think about it. Does it make you go - HELL YEAH! I wanna be a part of it. Yes? Do it. Commit to it and get it done. If you are on a fence about it, then it is a NO! What this does is not only help you prioritize things but will also give you this liberty to take up activities that really make you go **HELL YEAH**. And you wouldn't really be breaking promises because you didn't make them in the first place.
+
+As usual, this is something I heard in this [podcast](https://fs.blog/knowledge-project/derek-sivers/). Until something else comes along my way that makes me go **HELL YEAH** this is true, this is going to be my **mantra**. And **no**, I won't go out this weekend, again.
+
+2020-07-30
+
+---
+
+---
 
 ## i don't know
 
 #### sketch - 8
 
-An inevitable truth about us social beings is that we all want to sound smart. From our early childhood to the end of life, we are seeking validation, trying to feed our egos and hoping to be correct, always. A nod in the face, a hint of approval in the eyes, are all that we wish we would get from people. Amidst all that, where we miss out is being really smart. 
+An inevitable truth about us social beings is that we all want to sound smart. From our early childhood to the end of life, we are seeking validation, trying to feed our egos and hoping to be correct, always. A nod in the face, a hint of approval in the eyes, are all that we wish we would get from people. Amidst all that, where we miss out is being really smart.
 
 We are focused in the result. We hear people talking and spitting great values and the next thing we do is copy. We speak up about things we feel is correct. While that's not absolutely wrong but we fail to see the underlying truth. What made the person be on the stands and speak what he speaks? Who gave him the right and authority to be there and make us listen? Well, it's not the action in itself but the whole process behind it that's important. When we are really trying to sound smart we fail to put real effort in being one.
 
@@ -15,7 +34,7 @@ But you are here reading this and if you really want to be smart. Then remember 
 
 2020-05-29
 
-----
+---
 
 ## a note to you and i
 
@@ -25,17 +44,17 @@ I hate to admit this, but I am slowly losing respect for you. You have been grea
 
 2020-05-15
 
-----
+---
 
 ## selfish relation
 
 #### sketch - 6
 
-Be open about what you want. Be clear from the moment go. Tell the person what you need and pay attention to their likes/dislikes. Don't just listen; understand and help them understand your needs and emotions. Feed the person's ego and let her/him feed yours. Help the person get through her/his dreadful times with a promise that s/he will do the same for you. The love you so dearly wanted to work, will work. It will be driven by your selfishness and it will be just as beautiful. Because love doesn't have to be selfless, it is about serving you the way that works for both. If you take, you must give and that should work. 
+Be open about what you want. Be clear from the moment go. Tell the person what you need and pay attention to their likes/dislikes. Don't just listen; understand and help them understand your needs and emotions. Feed the person's ego and let her/him feed yours. Help the person get through her/his dreadful times with a promise that s/he will do the same for you. The love you so dearly wanted to work, will work. It will be driven by your selfishness and it will be just as beautiful. Because love doesn't have to be selfless, it is about serving you the way that works for both. If you take, you must give and that should work.
 
 2020-05-12
 
-----
+---
 
 ## positive illusion
 
@@ -45,7 +64,7 @@ Before you take an IQ test, guess the score you think you will get. Now, ask one
 
 2020-05-10
 
-----
+---
 
 ## my day off
 
@@ -61,7 +80,7 @@ Lately, I have been doing it wrong. It isn't the best of ways to make up for it 
 
 2020-05-07
 
-----
+---
 
 ## story never ends
 
@@ -69,12 +88,12 @@ Lately, I have been doing it wrong. It isn't the best of ways to make up for it 
 
 A song is stuck in my head. I am singing it. I know, I know, if you were here, you would have hated it. You have told me enough that I am a bad singer. But I would sing nonetheless and feel far from embarrassed - this is what I miss.
 
-I also know what they say - "Times change.", "Things don’t last", "Memories fade.", and so on. But what I remember is our stories. 
-And **the story never endsss ♬♬♬** 
+I also know what they say - "Times change.", "Things don’t last", "Memories fade.", and so on. But what I remember is our stories.
+And **the story never endsss ♬♬♬**
 
 2020-05-06
 
-----
+---
 
 ## the first time
 
@@ -84,7 +103,7 @@ The first memory of someone is **really** pure. It goes untapped and unadulterat
 
 2020-05-04
 
-----
+---
 
 ## is it chaotic?
 
