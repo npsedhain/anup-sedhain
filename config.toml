@@ -18,13 +18,13 @@ theme        = "/hello-friend-ng"
       url = "https://youtube.com/autonationnepal/"
   [[params.social]]
       name = "twitter"
-      url = "https://twitter.com/liveasased/"
+      url = "https://twitter.com/npsedhain/"
   [[params.social]]
       name = "github"
       url = "https://github.com/npsedhain/"
   [[params.social]]
       name = "instagram"
-      url = "https://instagram.com/sedhainanup/"
+      url = "https://instagram.com/npsedhain/"
 
   # Set disableReadOtherPosts to true in order to hide the links to other posts.
   disableReadOtherPosts = false
